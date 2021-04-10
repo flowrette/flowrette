@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @flowrette
+- 👀 I’m interested in video games, music, and movies. I'm mostly here to look at software and cool utilities.
+- 🌱 I’m currently and Mental Health Technician and don't know any code, but am interested in learning something one day!
+- 📫 You can find me on Twitter @flowrette
